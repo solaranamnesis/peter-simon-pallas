@@ -1,4 +1,4 @@
-# Reise durch verschiedene Provinzen des Russischen Reichs
+# Reise durch verschiedene Provinzen des Russischen Reichs.
 
 English - Plain Text  
 English - PDF  
