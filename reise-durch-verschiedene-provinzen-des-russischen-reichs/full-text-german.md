@@ -1,6 +1,6 @@
-# Reise durch verschiedene Provinzen des Russischen Reichs
+# Reise durch verschiedene Provinzen des Russischen Reichs.
 
-## P. S. Pallas
+## P. S. Pallas,
 
 ### D. A. D. Professors der Natur-Geschichte und ...
 
