@@ -44,6 +44,14 @@
 
 ...
 
+Iszlandischer Krystall oder Doppelspath war innerhalb Sibirien noch nicht gefunden.
+
+...
+
+Die verzüglichste Merkwürdigkeit aus dem Mineralreiche, welche ich in der Krasnojarslischen Gegend ausfündig gemacht habe, ist eine ungeheure fast vierzig Pud oder 1600 Pfund schwere Masse von drusigt gewachsnem gediegenen Eisen, worüber etwas umständlicher geredet werden muß.
+
+...
+
 ##
 
 ...
